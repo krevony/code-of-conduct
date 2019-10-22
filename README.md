@@ -1,4 +1,4 @@
-# Luxury Watch Club members' Code of Conduct
+# *Luxury Watch Club* members' Code of Conduct
 지융미 고급시계 동호회 회원들이 서로 지켜야하는 기본 강령입니다.
 
 ### 1. 차별 금지
